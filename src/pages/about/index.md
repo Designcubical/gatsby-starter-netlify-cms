@@ -42,7 +42,15 @@ Alla våra spelare, ledare och supportrar har ansvar för att alltid se individe
 
 Vi skapar trivsel, gemenskap och positiva minnen
 
-### Direct sourcing
+### Spelarutveckling
+
+IFK Kristinehamns fotbollsutbildning ska utmärkas av långsiktighet och tålamod. Vi ska sträva efter att behålla en bredd av utövare inom varje åldersgrupp. 
+
+Vår spelarutbildningsplan finns HÄR
+
+Våra riktlinjer för matchcoachning finns HÄR
+
+Våra riktlinjer för åldersgruppsintegrering finns HÄR
 
 Direct trade is a form of sourcing practiced by some coffee roasters. Advocates of direct trade practices promote direct communication and price negotiation between buyer and farmer, along with systems that encourage and incentivize quality.
 
