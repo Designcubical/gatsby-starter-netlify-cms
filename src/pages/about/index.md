@@ -12,15 +12,35 @@ IFK Kristinehamns fotbollssektion är en av tre sektioner inom IFK Kristinehamn.
 
 Varmt välkommen till vår förening ! Aktiva, föräldrar, stödmedlemmar, ledare, organisationsledare, materialansvar, lottförsäljning m.m. - alla är välkomna och alla behövs!
 
-Coffee is a small tree or shrub that grows in the forest understory in its wild form, and traditionally was grown commercially under other trees that provided shade. The forest-like structure of shade coffee farms provides habitat for a great number of migratory and resident species.
+### Vår vision
 
-### Single origin
+IFK Kristinehamn ska vara förstavalet för barn och ungdomar som vill spela fotboll. Varje individ ska hitta målet i IFK.
 
-Single-origin coffee is coffee grown within a single known geographic origin. Sometimes, this is a single farm or a specific collection of beans from a single country. The name of the coffee is then usually the place it was grown to whatever degree available.
+### Vår värdegrund - KAMRAT
 
-### Sustainable farming
+**K**ul
 
-Sustainable agriculture is farming in sustainable ways based on an understanding of ecosystem services, the study of relationships between organisms and their environment. What grows where and how it is grown are a matter of choice and careful consideration for nature and communities.
+Barn och ungdomar ska ha kul och idrotta utifrån sina förutsättningar
+
+**A**lla
+
+Verksamheten skall ge alla medlemmar möjlighet till utveckling, delaktighet och inflytande
+
+**M**ångfald
+
+Vi verkar för integration, mångfald och jämställdhet
+
+**R**espekt
+
+Vi föregår med gott exempel och visar respekt både på och utanför planen
+
+**A**nsvar
+
+Alla våra spelare, ledare och supportrar har ansvar för att alltid se individen, allas lika värde och möjligheter
+
+**T**rivsel
+
+Vi skapar trivsel, gemenskap och positiva minnen
 
 ### Direct sourcing
 
